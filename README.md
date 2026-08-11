@@ -1,5 +1,6 @@
 <p align="center">
-<img <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/081a663e-cf25-4635-af0b-49a267d89946" />
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/5c98368a-2fd6-4f05-a0ee-1b64aacf9b31" />
+
 
 <p align="center">
   ᴺᵃʳˡᵉⁿ / ᴴᵉ ᵀʰᵉʸ
