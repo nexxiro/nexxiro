@@ -1,5 +1,6 @@
 <p align="center">
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/7c5af951-5edb-4140-8894-7671a353a576" />
+<img <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/081a663e-cf25-4635-af0b-49a267d89946" />
+
 <p align="center">
   ᴺᵃʳˡᵉⁿ / ᴴᵉ ᵀʰᵉʸ
 
@@ -11,8 +12,3 @@
 
 
 
-
-
-<p align="right">
-<img width="90" height="90" alt="image" src="https://github.com/user-attachments/assets/af323eeb-a8b5-4994-bf75-bc1e6f9212ec" /
-<p align="center">
