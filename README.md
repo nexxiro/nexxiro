@@ -29,6 +29,12 @@ $\color{#a52ade}{\text{Taken by @blackscrrow}}$
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c66d1e57-f8a6-4d50-a84a-553c18fddab6" />
 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=313hjv6jaktl56fneqjxicjo5dya&cover_image=false&theme=natemoo-re&show_offline=false&background_color=31302b&interchange=false&profanity=false&hide_remaster=false&bar_color=b57ae6&bar_color_cover=false">
+  </a>
+</p>
+
 
 
 
