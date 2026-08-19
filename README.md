@@ -19,7 +19,7 @@ $\color{#a52ade}{\text{Noli | Narlen}}$
 $\color{#c891d9}{\text{He | They }}$
 
 <p align="center">
-$\color{#b89fd4}{\text{Read before you interact!}}$
+$\color{#b89fd4}{\text{ℝ𝕖𝕒𝕕 𝕓𝕖𝕗𝕠𝕣𝕖 𝕪𝕠𝕦 𝕚𝕟𝕥𝕖𝕣𝕒𝕔𝕥 𝕨𝕚𝕥𝕙 𝕞𝕖 !}}$
 
 <p align="center">
 $\color{#a52ade}{\text{Taken by @blackscrrow}}$
