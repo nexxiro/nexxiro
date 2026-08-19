@@ -24,6 +24,13 @@ $\color{#b89fd4}{\text{Read before you interact!}}$
 <p align="center">
 $\color{#a52ade}{\text{Taken by @blackscrrow}}$
 
+<p align="center">
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9ac462d2-17b1-435c-a994-822db06cc384" />
+
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c66d1e57-f8a6-4d50-a84a-553c18fddab6" />
+
+
+
 
 </p>
 
