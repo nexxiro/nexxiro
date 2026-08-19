@@ -29,7 +29,10 @@ $\color{#a52ade}{\text{Taken by @blackscrrow}}$
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c66d1e57-f8a6-4d50-a84a-553c18fddab6" />
 
-<p align="center">
+<p align="left">
+
+
+
   
 
 </p>
