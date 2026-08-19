@@ -12,6 +12,17 @@
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c405959a-5ab0-484b-89ec-cd6e35139802" />
 
+<p align="center"> 
+$\color{#a52ade}{\text{Noli | Narlen}}$
+
+<p align="center">
+$\color{#c891d9}{\text{He | They }}$
+
+<p align="center">
+$\color{#b89fd4}{\text{Read before you interact!}}$
+
+<p align="center">
+$\color{#a52ade}{\text{Taken by @blackscrrow}}$
 
 
 </p>
@@ -22,6 +33,8 @@
 
 <p align="center">
 <img width="1245" height="248" alt="image" src="https://github.com/user-attachments/assets/51c41c41-fec7-4c30-860a-b507524f69a5" />
+
+
 
 
 
