@@ -1,5 +1,5 @@
 <p align="center">
-<img width="1130" height="248" alt="image" src="https://github.com/user-attachments/assets/b67816c5-30f2-4212-ac6e-b88c90ceb479" />
+<img width="1130" height="auto" alt="image" src="https://github.com/user-attachments/assets/b67816c5-30f2-4212-ac6e-b88c90ceb479" />
 
 
 
@@ -47,7 +47,7 @@ $\color{#a52ade}{\text{Taken by @blackscrrow}}$
 
 
 <p align="center">
-<img width="1245" height="248" alt="image" src="https://github.com/user-attachments/assets/51c41c41-fec7-4c30-860a-b507524f69a5" />
+<img width="1245" height="auto" alt="image" src="https://github.com/user-attachments/assets/51c41c41-fec7-4c30-860a-b507524f69a5" />
 
 
 
