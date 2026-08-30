@@ -24,12 +24,19 @@ $\color{#b89fd4}{\text{ℝ𝕖𝕒𝕕 𝕓𝕖𝕗𝕠𝕣𝕖 𝕪𝕠𝕦 �
 <p align="center">
 $\color{#a52ade}{\text{Taken by @blackscrrow}}$
 
+  <p align="center">
+$\color{#b89fd4}{\text{Mini Noli made by marki ily/p}}$
+
 <p align="center">
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9ac462d2-17b1-435c-a994-822db06cc384" />
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c66d1e57-f8a6-4d50-a84a-553c18fddab6" />
 
 <p align="left">
+<img <img width="auto" height="300" alt="image" src="https://github.com/user-attachments/assets/9ed68a61-f012-43e0-81b7-3835750cf7e0" />
+
+
+
 
 
 
