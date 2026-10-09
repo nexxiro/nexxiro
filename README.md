@@ -1,62 +1,18 @@
-<p align="center">
-<img width="1130" height="auto" alt="image" src="https://github.com/user-attachments/assets/b67816c5-30f2-4212-ac6e-b88c90ceb479" />
+<p align="center"><img width="850" alt="image" src="https://github.com/user-attachments/assets/3ebf3a47-774f-4d18-b76c-d296bdb6cb17" /></p>
 
 
+<p align="center"><img <img width="400" alt="image" src="https://github.com/user-attachments/assets/d1632e4f-5877-4b56-9a7f-d78e210da157" 
+ align="left" width="300" /></p>
+ 
+${\color{#ffffff}{\textsf /ᐠ - ˕ -マ}} \color{#fffff}{\textsf{Leker}} \color{#ffffr}{\textsf{or}}  \color{#fffff}{\textsf{Marki/ Matt}}$
+<br/>
 
+${\color{#fffff}{\textsf He * They * It}} \color{#fffff}{\textsf{　꒱　}} \color{#fffff}{\textsf{ 20th Aprill! }}  \color{#fffff}{\textsf{eng/fr}}$
+<br/>
 
+${\color{#fffff}{\textsf mostly}} \color{#fffff}{\textsf{offtab}} \color{#fffff}{\textsf{ /Safk}} \color{#fffff}{\textsf{ ﹕ ꔫ}}  \color{#fffff}{\textsf{W2I!!}}$
 
-<p align="center">
-  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0b762e8b-e45b-4ba4-9195-494abc9102c0" />
+[sign atabook](https://knowledge-spell.atabook.org/) symbol# [strawpage](https://wizardry-heart.straw.page/)
 
-<img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/eb82d873-0fcf-4450-8b74-562e85b415a7" />
-
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c405959a-5ab0-484b-89ec-cd6e35139802" />
-
-<p align="center"> 
-$\color{#a52ade}{\text{Noli | Narlen}}$
-
-<p align="center">
-$\color{#c891d9}{\text{He | They }}$
-
-<p align="center">
-$\color{#b89fd4}{\text{ℝ𝕖𝕒𝕕 𝕓𝕖𝕗𝕠𝕣𝕖 𝕪𝕠𝕦 𝕚𝕟𝕥𝕖𝕣𝕒𝕔𝕥 𝕨𝕚𝕥𝕙 𝕞𝕖 !}}$
-
-<p align="center">
-$\color{#a52ade}{\text{Taken by @blackscrrow}}$
-
-  <p align="center">
-$\color{#b89fd4}{\text{Mini Noli made by marki ily/p}}$
-
-<p align="center">
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9ac462d2-17b1-435c-a994-822db06cc384" />
-
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c66d1e57-f8a6-4d50-a84a-553c18fddab6" />
-
-<p align="left">
-<img <img width="auto" height="300" alt="image" src="https://github.com/user-attachments/assets/9ed68a61-f012-43e0-81b7-3835750cf7e0" />
-
-
-
-
-
-
+This is a massive wip for a friend don't mond it..😭🥲
   
-
-</p>
-
-
-
-
-</p>
-
-
-
-
-
-<p align="center">
-<img width="1245" height="auto" alt="image" src="https://github.com/user-attachments/assets/51c41c41-fec7-4c30-860a-b507524f69a5" />
-
-
-
-
-
