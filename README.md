@@ -14,5 +14,5 @@ ${\color{#fffff}{\textsf mostly}} \color{#fffff}{\textsf{offtab}} \color{#ff
 
 [sign atabook](https://knowledge-spell.atabook.org/) symbol# [strawpage](https://wizardry-heart.straw.page/)
 
-This is a massive wip for a friend don't mond it..😭🥲
+This is a massive wip for a friend don't mind it..😭🥲
   
