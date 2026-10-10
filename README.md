@@ -15,7 +15,7 @@ ${\color{#fffff}{\textsf ╰┈➤ HE ／ HIM ﹒   IT ／ ITS}}$
 <tr>
 <td>
   <details>
-<summary>$\color{#6b334a}{\textsf{ㅤㅤㅤㅤㅤ➤ W2I .ᐟ.ᐟㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#fffff}{\textsf{ㅤㅤㅤㅤㅤ➤ W2I .ᐟ.ᐟㅤㅤㅤㅤㅤ}}$</summary>
 
 　　　<br>
    <td>
@@ -25,7 +25,7 @@ ${\color{#fffff}{\textsf ╰┈➤ HE ／ HIM ﹒   IT ／ ITS}}$
   <tr>
 <td>
   <details>
-<summary>$\color{#964b64}{\textsf{ㅤㅤㅤㅤㅤㅤ➤ C+H freely alwaysㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#fffff}{\textsf{ㅤㅤㅤㅤㅤㅤ➤ C+H freely alwaysㅤㅤㅤㅤ}}$</summary>
     <br>
 
 
