@@ -4,15 +4,29 @@
 <p align="center"><img <img width="400" alt="image" src="https://github.com/user-attachments/assets/d1632e4f-5877-4b56-9a7f-d78e210da157" 
  align="left" width="300" /></p>
  
-${\color{#ffffff}{\textsf /ᐠ - ˕ -マ}} \color{#fffff}{\textsf{Leker}} \color{#ffffr}{\textsf{or}}  \color{#fffff}{\textsf{Marki/ Matt}}$
+${\color{#ffffff}{\textsf 💤 . 𖥻 ׁ}} \color{#fffff}{\textsf{Leker ／ Marki /  Matt  ꒱  ׅ 𖦹}}$
 <br/>
 
-${\color{#fffff}{\textsf He * They * It}} \color{#fffff}{\textsf{　꒱　}} \color{#fffff}{\textsf{ 20th Aprill! }}  \color{#fffff}{\textsf{eng/fr}}$
+${\color{#fffff}{\textsf eng  ✦  fr  ✦  kreol}}$
 <br/>
 
-${\color{#fffff}{\textsf mostly}} \color{#fffff}{\textsf{offtab}} \color{#fffff}{\textsf{ /Safk}} \color{#fffff}{\textsf{ ﹕ ꔫ}}  \color{#fffff}{\textsf{W2I!!}}$
+${\color{#fffff}{\textsf ╰┈➤ HE ／ HIM ﹒   IT ／ ITS}}$
 
-[sign atabook](https://knowledge-spell.atabook.org/) symbol# [strawpage](https://wizardry-heart.straw.page/)
+
+<td>
+  <details>
+<summary>$\color{#fffff}{\textsf{⊹ ࣪    ﹒         𖦹 ׂ 𓈒 Mostly OFFtab ﹒ s/AFK .ׅ  🔹ㅤㅤㅤㅤ}}$</summary>
+   <br>
+  
+   <td>
+  <details>
+<summary>$\color{#fffff}{\textsf {➤ C+H freely always}}$</summary>
+　　　<br>
+   <td>
+    <details>
+
+
+[ᛝ .˚ ata book  ](https://knowledge-spell.atabook.org/) ᯓ 𖦹 [Strawpage ⊹ ࣪ ˖](https://wizardry-heart.straw.page/)
 
 This is a massive wip for a friend don't mind it..😭🥲
   
