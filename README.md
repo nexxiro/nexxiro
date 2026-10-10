@@ -11,25 +11,16 @@ ${\color{#fffff}{\textsf eng  ✦  fr  ✦  kreol}}$
 <br/>
 
 ${\color{#fffff}{\textsf ╰┈➤ HE ／ HIM ﹒   IT ／ ITS}}$
+<br/>
 
-<tr>
-<td>
-  <details>
-<summary>$\color{#fffff}{\textsf{ㅤㅤㅤㅤㅤ➤ W2I .ᐟ.ᐟㅤㅤㅤㅤㅤ}}$</summary>
-
-　　　<br>
-   <td>
-    <details>
-    </td>
-  </tr>
-  <tr>
-<td>
-  <details>
-<summary>$\color{#ffff}{\textsf{ㅤㅤㅤㅤㅤㅤ➤ C+H freely alwaysㅤㅤㅤㅤ}}$</summary>
-    <br>
+${\color{#fffff}{\textsf ⊹ ࣪    ﹒     𖦹 ׂ 𓈒 Mostly OFFtab ﹒ s/AFK .ׅ  🔹}}$
+<br/>
 
 
-[ᛝ .˚ ata book  ](https://knowledge-spell.atabook.org/) ᯓ 𖦹 [Strawpage ⊹ ࣪ ˖](https://wizardry-heart.straw.page/)
+
+
+
+
 
 This is a massive wip for a friend don't mind it..😭🥲
   
