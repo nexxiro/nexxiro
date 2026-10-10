@@ -1,9 +1,14 @@
-<p align="center"><img width="850" alt="image" src="https://github.com/user-attachments/assets/3ebf3a47-774f-4d18-b76c-d296bdb6cb17" /></p>
+<p align="center""/><img width="560" height="auto"alt="image" src="https://github.com/user-attachments/assets/e19a90d8-cfbe-4a83-a324-67e1113884a8" 
+ /></p>
+
+<p align="center">
+<img width="600" height="auto" alt="tumblr_a53cdf5f52f5e618d48f67647d9651a5_891b58ef_640" src="https://github.com/user-attachments/assets/aa27feea-10d3-4c5a-b30f-d51633b7b994" />
+
+<p align="center"><img width="300" src="https://media.discordapp.net/attachments/1354392857535971340/1558186610464657458/Untitled645_20261009223652.png?ex=6acb2e9d&is=6ac9dd1d&hm=eac709eca8f424b9dc3c134a00b5a64c9c095cc51805976f79e55cc29e1f47c6&=&format=webp&quality=lossless&width=662&height=1024" align="left" width="300" /></p>
 
 
-<p align="center"><img <img width="400" alt="image" src="https://github.com/user-attachments/assets/d1632e4f-5877-4b56-9a7f-d78e210da157" 
- align="left" width="300" /></p>
- 
+
+
 ${\color{#ffffff}{\textsf 💤 . 𖥻 ׁ}} \color{#fffff}{\textsf{Leker ／ Marki /  Matt  ꒱  ׅ 𖦹}}$
 <br/>
 
@@ -22,5 +27,5 @@ ${\color{#fffff}{\textsf ⊹ ࣪    ﹒     𖦹 ׂ 𓈒 Mostly OFFtab ﹒ s/AFK
 
 
 
-This is a massive wip for a friend don't mind it..😭🥲
+
   
