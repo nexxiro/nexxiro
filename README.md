@@ -12,18 +12,21 @@ ${\color{#fffff}{\textsf eng  ✦  fr  ✦  kreol}}$
 
 ${\color{#fffff}{\textsf ╰┈➤ HE ／ HIM ﹒   IT ／ ITS}}$
 
-
+<tr>
 <td>
   <details>
-<summary>$\color{#fffff}{\textsf{⊹ ࣪    ﹒         𖦹 ׂ 𓈒 Mostly OFFtab ﹒ s/AFK .ׅ  🔹ㅤㅤㅤㅤ}}$</summary>
-   <br>
-  
-   <td>
-  <details>
-<summary>$\color{#fffff}{\textsf {➤ C+H freely always}}$</summary>
+<summary>$\color{#6b334a}{\textsf{ㅤㅤㅤㅤㅤ➤ W2I .ᐟ.ᐟㅤㅤㅤㅤㅤ}}$</summary>
+
 　　　<br>
    <td>
     <details>
+    </td>
+  </tr>
+  <tr>
+<td>
+  <details>
+<summary>$\color{#964b64}{\textsf{ㅤㅤㅤㅤㅤㅤ➤ C+H freely alwaysㅤㅤㅤㅤ}}$</summary>
+    <br>
 
 
 [ᛝ .˚ ata book  ](https://knowledge-spell.atabook.org/) ᯓ 𖦹 [Strawpage ⊹ ࣪ ˖](https://wizardry-heart.straw.page/)
