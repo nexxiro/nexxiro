@@ -25,7 +25,7 @@ ${\color{#fffff}{\textsf ╰┈➤ HE ／ HIM ﹒   IT ／ ITS}}$
   <tr>
 <td>
   <details>
-<summary>$\color{#fffff}{\textsf{ㅤㅤㅤㅤㅤㅤ➤ C+H freely alwaysㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#ffff}{\textsf{ㅤㅤㅤㅤㅤㅤ➤ C+H freely alwaysㅤㅤㅤㅤ}}$</summary>
     <br>
 
 
