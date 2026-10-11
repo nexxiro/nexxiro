@@ -1,17 +1,39 @@
-<p align="center""/><img width="560" height="auto"alt="image" src="https://github.com/user-attachments/assets/e19a90d8-cfbe-4a83-a324-67e1113884a8" 
- /></p>
+<p align="center">
+<img width="1130" height="auto" alt="image" src="https://github.com/user-attachments/assets/b67816c5-30f2-4212-ac6e-b88c90ceb479" />
 
 
-<p align="center"><img width="600" height="auto" alt="tumblr_a53cdf5f52f5e618d48f67647d9651a5_891b58ef_640" src="https://github.com/user-attachments/assets/aa27feea-10d3-4c5a-b30f-d51633b7b994" />
 
 
-<img width="650" height="auto" alt="image" src="https://github.com/user-attachments/assets/9266a0c5-12b9-47f8-8038-2f626f35c13d" />
 
-[ᛝ .˚ ata book](https://knowledge-spell.atabook.org/) 　‎ᯓ 𖦹　 [Strawpage ⊹ ࣪ ˖](https://wizardry-heart.straw.page/)
+<p align="center">
+  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0b762e8b-e45b-4ba4-9195-494abc9102c0" />
 
+<img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/eb82d873-0fcf-4450-8b74-562e85b415a7" />
 
-♯ .  ݁˖ my chuds ; [Narlen](https://github.com/nexxiro) , [Shrike](https://github.com/Steampunked-Ghoul)  , [Axder/Twixxel](https://github.com/Twixxel-Lessgo)
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c405959a-5ab0-484b-89ec-cd6e35139802" />
 
+<p align="center"> 
+$\color{#a52ade}{\text{Noli | Narlen}}$
+
+<p align="center">
+$\color{#c891d9}{\text{He | They }}$
+
+<p align="center">
+$\color{#b89fd4}{\text{ℝ𝕖𝕒𝕕 𝕓𝕖𝕗𝕠𝕣𝕖 𝕪𝕠𝕦 𝕚𝕟𝕥𝕖𝕣𝕒𝕔𝕥 𝕨𝕚𝕥𝕙 𝕞𝕖 !}}$
+
+<p align="center">
+$\color{#a52ade}{\text{Taken by @blackscrrow}}$
+
+  <p align="center">
+$\color{#b89fd4}{\text{Mini Noli made by marki ily/p}}$
+
+<p align="center">
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9ac462d2-17b1-435c-a994-822db06cc384" />
+
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c66d1e57-f8a6-4d50-a84a-553c18fddab6" />
+
+<p align="left">
+<img <img width="auto" height="300" alt="image" src="https://github.com/user-attachments/assets/9ed68a61-f012-43e0-81b7-3835750cf7e0" />
 
 
 
@@ -19,3 +41,17 @@
 
 
   
+
+</p>
+
+
+
+
+</p>
+
+
+
+
+
+<p align="center">
+<img width="1245" height="auto" alt="image" src="https://github.com/user-attachments/assets/51c41c41-fec7-4c30-860a-b507524f69a5" />
